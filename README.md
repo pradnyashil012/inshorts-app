@@ -1,1 +1,0 @@
-# inShorts-clone
